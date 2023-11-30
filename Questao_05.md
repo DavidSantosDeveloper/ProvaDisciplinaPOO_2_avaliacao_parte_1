@@ -1,0 +1,1 @@
+### Sim ,considero que foi propragado.considero a solução como confiável.
